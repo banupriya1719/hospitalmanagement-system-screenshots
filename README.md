@@ -1,0 +1,8 @@
+![image alt](https://github.com/banupriya1719/hospitalmanagement-system-screenshots/blob/main/Screenshot%202025-07-08%20161736.png?raw=true)
+![image alt](https://github.com/banupriya1719/hospitalmanagement-system-screenshots/blob/main/Screenshot%202025-07-08%20161750.png?raw=true)
+![image alt](https://github.com/banupriya1719/hospitalmanagement-system-screenshots/blob/main/Screenshot%202025-07-08%20161804.png?raw=true)
+![image alt](https://github.com/banupriya1719/hospitalmanagement-system-screenshots/blob/main/Screenshot%202025-07-08%20162109.png?raw=true)
+![image alt](https://github.com/banupriya1719/hospitalmanagement-system-screenshots/blob/main/Screenshot%202025-07-08%20162251.png?raw=true)
+![image alt](https://github.com/banupriya1719/hospitalmanagement-system-screenshots/blob/main/Screenshot%202025-07-08%20162424.png?raw=true)
+![image alt](https://github.com/banupriya1719/hospitalmanagement-system-screenshots/blob/main/Screenshot%202025-07-08%20162537.png?raw=true)
+![image alt](https://github.com/banupriya1719/hospitalmanagement-system-screenshots/blob/main/Screenshot%202025-07-08%20162706.png?raw=true)
